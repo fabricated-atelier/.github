@@ -1,1 +1,1 @@
-Assets which belong to the origanisation can be placed in here.
+Assets which belong to the Fabricated Atelier organisation and its members
